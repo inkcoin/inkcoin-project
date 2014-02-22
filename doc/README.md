@@ -1,0 +1,1 @@
+We have moved! http://inkcoin.org
